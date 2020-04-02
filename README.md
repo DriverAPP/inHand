@@ -6,12 +6,12 @@
   
 ↓永久地址发布站↓
 
- [https://in01.vip](https://in01.vip/?utm_source=github&utm_medium=forever1)
+ [https://in02.vip](https://in02.vip/?utm_source=github&utm_medium=forever1)
 ------------------------------------------------------------------------------
   
 ↓海外永久地址(需翻墙)↓
 
-[https://in02.vip](https://in01.vip/?utm_source=github&utm_medium=forever2)
+[https://in02.vip](https://in02.vip/?utm_source=github&utm_medium=forever2)
 ------------------------------------------------------------------------------
   
 二維碼↓↓
